@@ -12,3 +12,6 @@ Il faut parfois pouvoir de défendre avec les mots.
 En restant imble et respectueux, mais utilisée la parole peut faire avancer les choses.
 >>>>>>> 51c51b968f15a262c83315bfcdfa43b87dc7b03f
 
+C'est pas faux.
+Angel Nittelet.
+28/02/2024.
